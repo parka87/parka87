@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 
 <!---
-parka87/parka87 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+parka87/parka87 is a ✨ speciasal ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
 hj
