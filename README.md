@@ -5,7 +5,7 @@
 - 📫 How to reach me ...xzc
 
 <!---asd
-parka87/parka87 is a ✨ speciasal ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+parka87/parka87 is a ✨ speciasal ✨ repository because n,mits `README.md` (this file) appears on your GitHub profile.
 You can click thedas Preview link to take a look at your changes.
 --->
 hjhj
