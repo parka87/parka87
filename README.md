@@ -1,7 +1,7 @@
-xzcc- 👋 Hi, I’m @parka87hjv,sdvxcvbmnbcv gfd
+xxzcc- 👋 Hi, I’m @parka87hjv,sdvxcvbmnbcv gfd
 - 👀 I’m interested intui ...
 - 🌱 I’m currently learning .cxvxzc..gxczx
-- 💞️asdI’ccxvxcxvm looking vcxcollaboraaasczxccxxzsdte on ...asdzxccxzasd
+- 💞️asdczxcI’ccxvxcxvm looking vcxcollaboraaasczxccxxzsdte on ...asdzxccxzasdxzcxzc
 - 📫 How to reafdscsscоварапр
 <!---asdxsavxcgbf
 parka87/parсмиka87 is a ✨x speciasal ✨ repository because n,mits `README.md` (this file) appears on your GitHub profile.
