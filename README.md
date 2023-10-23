@@ -4,7 +4,7 @@ vcxxxxzcc- 👋 Hi, I’m @parka87hjv,sdvxcvbmnbcv gfd
 - 💞️asdczxcI’ccxvxcxvm looking sdcvcxcollaboraaasczxccxxzsdte on ...asdzxccasdsadasdxzasdxzcxzc
 - 📫 How to reafdscsscоварапр
 <!---asdxsavxcgbfasdfasdfлроиasddgfhdgfh
-parka87/parсмиka87 is a ✨x speciasal ✨ repository because n,mghjfhits `README.md` (this file) appears on your GitHub profile.
+parka87/parсмиka87 is a ✨x speciasal ✨ repository because n,mghjfhits `README.md` (thіфвіфвфівіфis file) appears on your GitHub profile.
 You can click thedxcvbas Preview link toсми take a look at your cавпмсчсчhanges.dfg
 --->
 hjhjasdsad
