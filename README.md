@@ -1,6 +1,6 @@
  vcxxxxzcc- 👋 Hi, I’m @parka87hjv,sdvxcvbmnbcv gfd
 - 👀 I’m interested intui ...asdzcxcxzzxcxvz
-- 🌱 I’m currently learning sacxzczxcxzcxzc.cxvxzc..gxczxsdfcvxzzxchjgzxcfsdfsdzsdasdasdasxfzdfsxczxahgndvcvckhjasdsdfdscasdasdasdxvadsasdasdasdasjhasdasdxzcxzc
+- 🌱 I’m currently learning sacxzczxcxzcxzc.cxvxzc..gxczxsdfcvxzzxchjgzxcfsdfsdzsdasdasdasxfzdfsxczxahgndvcvckhjasdsdfdgjjghscasdasdasdxvadsasdasdasdasjhasdasdxzcxzc
 - 💞️asdczxcI’ccxasdfvxcxvm lasdasdasdcxzcookinsdasdag axsadasdsadasdsadмсчasdfdsfdsfasasdsadsadasdfassdcvcxcollaboraaazxzxsczxccsdfdsxxzsdte sadasdasdasdasdssdon ...asdzxccasdsadasdxzasd.kljxzcxzc
 - 📫 How to reafdscsscоварапрsdfdasdsadasdsf
 <!---asdxsavxcgbfasdfasdfлроиasddgfhdgфівіфвfhascxzcxzмсч
